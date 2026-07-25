@@ -1,8 +1,8 @@
-　　　　　　　　　　　　　　　　　⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
+　　　　　　　　　　　　　　　　　　⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
 HEY!! My name is Shu, I love Beyblade and many more! I am a yumeshipper, sharing status depend on who you/we're talking about. I love music and I play the guitar! My favourite genres are indie, rock, and bedroom pop. I also draw and write poems (only if I'm in the mood!) Take note, I am a very shy and awkward individual. I can be either sensitive or insensitive at times, please tell me if I go too far. Be my friend!
 
-　　　　　　　　　　　　　　　　　──── ୨ৎ ────
+　　　　　　　　　　　　　　　　　　──── ୨ৎ ────
 
 ⤹　Hyperfix yap session
 
@@ -12,7 +12,7 @@ I've been a fan of Beyblade ever since Beyblade Burst first aired on TV (2016, I
 
 Cuddle, hug, hide behind me, nuzzle, and kiss freely! Boop at a minimal amount, I get tired when someone boops over and over again (I might hide you for 15mins, especially newer players... Sorry!) You don't need permission to C+H+H+N+K with me, do it as you please! Just don't approach me if you're using suggestive pony skins and doing suggestive actions.
 
-　　　　　　　　　　　　　　　　　⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
+　　　　　　　　　　　　　　　　　　⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
 <!--
 **shusscar/shusscar** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
