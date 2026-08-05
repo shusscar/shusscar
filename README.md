@@ -1,6 +1,6 @@
 　　　　　　　　　　　　　　　　　　⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
-HEY!! My name is Shu, I love Beyblade and many more! I am a yumeshipper, sharing status depend on who you/we're talking about. I love music and I play the guitar! My favourite genres are indie, rock, and bedroom pop. I also draw and write poems (only if I'm in the mood!) Take note, I am a very shy and awkward individual. I can be either sensitive or insensitive at times, please tell me if I go too far. Be my friend!
+HEY!! My name is Shu, but call me Heathcliff! I love Beyblade and many more! I am a yumeshipper, sharing status depend on who you/we're talking about. I love music and I play the guitar! My favourite genres are indie, rock, and bedroom pop. I also draw and write poems (only if I'm in the mood!) Take note, I am a very shy and awkward individual. I can be either sensitive or insensitive at times, please tell me if I go too far. Be my friend!
 
 　　　　　　　　　　　　　　　　　　──── ୨ৎ ────
 
